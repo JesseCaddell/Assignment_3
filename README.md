@@ -10,3 +10,7 @@ I love live music. I've seen King Gizzard and the Lizard Wizard  4 times and Mew
 Nick:
 I prefer manga to anime. I also read comics, love Tarkovsky, and play/write music. Music is my obsession.
 I play video games a couple days a month and just ate a burger.
+
+Sarah:
+I spend most of my free time getting out to explore with Bulldogs. I also love live music, watching astronomical events,
+and road trips that last for weeks. Or months. Those are my favorite.
